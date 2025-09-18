@@ -80,7 +80,7 @@ For questions, collaborations, or contributions, reach out to:
 
 **Ira Padole**
 📧 [irapadole2004@gmail.com](mailto:irapadole2004@gmail.com)
-🔗 [LinkedIn](https://www.linkedin.com/in/irapadole)]
+🔗 LinkedIn  • Portfolio
 
 ---
 
